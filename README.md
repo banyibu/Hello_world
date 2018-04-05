@@ -1,4 +1,7 @@
 # Hello_world
 It is a simple repository.
 Today, I have my github.
-I don't know what has happened?
+致陶某某：
+  不顾二十余年悲与欢；不想三年之荣辱史；畏之何事？惧之何事？心中梦想，志在必得；这必得之梦一直是一剂救心之药；临到熬出头，终被付之一炬；终了，戚戚然无天地。格曾辱，血洗刷；梦被摧，身陪葬。
+   此世，荣辱已清；他乡还需多多思量。
+                                                        ————般一不
